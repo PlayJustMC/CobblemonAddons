@@ -1,1 +1,1 @@
-# PlayJustMC's Cobblemon Addons (Made By MystixMew)
+# PlayJustMC's Cobblemon Addons
